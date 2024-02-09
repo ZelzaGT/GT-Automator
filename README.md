@@ -2,6 +2,8 @@
 > All Growtopia versions are compatible
 > 
 > Tested in windows 10, 11
+>
+> Free & Trusted
 
 ![image](https://github.com/ZelzaGT/GT-Automator/assets/159553012/5d439fe8-7491-48d9-a30e-f4a4639df2e2)
 
