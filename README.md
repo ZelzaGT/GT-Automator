@@ -7,8 +7,10 @@
 >
 > Free & Safe
 
-![image](https://github.com/ZelzaGT/GT-Automator/assets/159553012/5d439fe8-7491-48d9-a30e-f4a4639df2e2)
+![image](https://github.com/Bt08s/GrowPY/assets/68190921/7621a59f-5f70-4d99-b00a-afb0d4529f34)
 
-![image](https://github.com/ZelzaGT/GT-Automator/assets/159553012/56f3babc-d5d5-4a73-9074-3f6ea87ef646)
+![image](https://github.com/Bt08s/GrowPY/assets/68190921/091656eb-8b37-4c06-b393-24ee47482023)
 
-![image](https://github.com/ZelzaGT/GT-Automator/assets/159553012/877671aa-023d-4ded-be01-c0a27e0149cc)
+![image](https://github.com/Bt08s/GrowPY/assets/68190921/494120f7-ddf8-44e9-99bc-267265a5210c)
+
+![image](https://github.com/Bt08s/GrowPY/assets/68190921/b2e1b239-e817-4946-b118-f820f62304b6)
